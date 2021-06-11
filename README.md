@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nujoom17
-- 👀 I’m interested in Configuring and troubleshooting systems and peripheral devices.
+- 👀 I’m interested in Configuring systems alongside building apps and website.
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me nujoom2007@gmail.com
